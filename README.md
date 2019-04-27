@@ -2,7 +2,7 @@
 
 Aprendiz:
 
-Fabian David Vargas Silva 
+Fabian David Vargas Silva - 
 Andy Stik Mendoza Rincon
 
 
